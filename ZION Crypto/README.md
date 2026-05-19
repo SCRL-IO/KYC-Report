@@ -1,3 +1,6 @@
+<img width="1280" height="640" alt="Certificate KYC for ZION Crypto" src="https://github.com/user-attachments/assets/5e075e8c-5307-43d3-b994-a5cd825b6db8" />
+
+
 
 <br>KYC Report Information
 <br>About Report ZION Crypto KYC Report
